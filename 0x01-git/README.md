@@ -1,1 +1,1 @@
-This is my first tried , it is soo cool
+This is my first tried
